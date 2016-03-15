@@ -11,6 +11,7 @@
 - Aviator's Smokehouse and Brewery
 - ~~Cooley's~~
 - Snoopy's
+- Char Grill is famous (around here) for burgers
 
 ### Great places to stay
 
