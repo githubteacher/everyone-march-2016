@@ -6,6 +6,7 @@
 
 ### Great places to eat
 - Loetje
+- XXX
 
 ### Great places to stay
 - The Hoxton
