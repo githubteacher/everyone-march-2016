@@ -8,6 +8,9 @@ Across the cobbles by the colleges
 Christ Church
 Jesus
 St Johns
+College A
+College B
+Smelly College
 
 ### Stuff to eat
 Not much (all boring chains)
