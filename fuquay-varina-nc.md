@@ -14,3 +14,4 @@
 ### Great places to stay
 
 - None, better to stay in Holly Springs or Apex.
+- There is a neat bed and breakfast south of town called Mariel's place.
