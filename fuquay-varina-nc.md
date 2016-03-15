@@ -3,8 +3,8 @@
 ### Fun things to do
 
 - Visit Raven Rock for great hiking
-- Go to the Science Museum in Raleigh
-- Go golfing - lots of great places to golf and watch other people play golf.
+- So sad - I didn't update before I created this branch so my old version of the doc is here!
+
 
 ### Great places to eat
 
