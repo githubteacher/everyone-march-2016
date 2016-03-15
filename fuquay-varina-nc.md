@@ -4,6 +4,7 @@
 
 - Visit Raven Rock for great hiking
 - Go to the Science Museum in Raleigh
+- Go golfing - lots of great places to golf and watch other people play golf.
 
 ### Great places to eat
 
