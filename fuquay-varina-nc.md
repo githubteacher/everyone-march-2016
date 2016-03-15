@@ -3,8 +3,7 @@
 ### Fun things to do
 
 - Visit Raven Rock for great hiking
-- I have no idea
-- I never actually do anything fun
+- So sad - I didn't update before I created this branch so my old version of the doc is here!
 
 ### Great places to eat
 
