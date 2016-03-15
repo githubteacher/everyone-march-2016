@@ -3,7 +3,8 @@
 ### Fun things to do
 
 - Visit Raven Rock for great hiking
-- Go to the Science Museum in Raleigh
+- I have no idea
+- I never actually do anything fun
 
 ### Great places to eat
 
