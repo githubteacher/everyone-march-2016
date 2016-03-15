@@ -7,7 +7,12 @@ Across the cobbles by the colleges
 ### Colleges to see
 Christ Church
 Jesus
+St Johns
+College A
+College B
+Smelly College
 
 ### Stuff to eat
-Not much
-Don't do it don't do it don't do it
+Not much (all boring chains)
+OK cheap student gaffs
+What is going on why can't I see the new changes
